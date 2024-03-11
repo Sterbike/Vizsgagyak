@@ -1,1 +1,1 @@
-# Vizsgagyak
+Hódi Richárd
